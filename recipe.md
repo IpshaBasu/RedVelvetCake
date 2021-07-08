@@ -1,4 +1,4 @@
-# Recipe for Red Velvet Cake
+Recipe for Red Velvet Cake
 _Preheat oven to 350°F, grease cake pans. Line with parchment paper._
 _Sift the flour, cocoa powder, and salt in a large bowl_
 _Add the oil, egg yolks, vanilla extract, and beat on high for 2 minutes_

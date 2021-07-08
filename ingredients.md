@@ -1,4 +1,4 @@
-# Red Velvet Cake Ingredients
+Red Velvet Cake Ingredients
 _Flour_
 _Cocoa Powder_
 _Baking Soda_
